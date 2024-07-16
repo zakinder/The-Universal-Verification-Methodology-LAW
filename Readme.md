@@ -1,0 +1,3 @@
+The Universal Verification Methodology LAW
+
+HELL FOR THOSE WHO TRIGGER APPLE IS LOGIC AND SPACE IS TRANSIENT
